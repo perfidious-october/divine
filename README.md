@@ -1,3 +1,3 @@
 # если хотите закентиться, напишите в лс или подсядьте <3
 
-![Alt Text](https://freeimage.host/i/fdJR3QV)
+![Alt Text](https://i.yapx.ru/cK7q4.jpg)
